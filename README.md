@@ -1,1 +1,0 @@
-# jamaki-ibmi.github.io
